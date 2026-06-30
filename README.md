@@ -1,6 +1,6 @@
 # Music Collection
 
-宋冬野 - 再想想 (2025)
+宋冬野 - 再想想 (2026)
 
 ## Tracklist
 
